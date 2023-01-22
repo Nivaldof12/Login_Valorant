@@ -1,4 +1,4 @@
-![alt text](https://i.imgur.com/6BwytHg.png)
+![alt text](https://imgur.com/a/jm17bbo)
 
 ## Página de login do Valorant
 
